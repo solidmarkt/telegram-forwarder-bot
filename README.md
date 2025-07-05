@@ -15,6 +15,9 @@
 ● DM from Telegram (https://t.me/solidmarketing) if you want to buy full version of the bot. 💬
 
 ● Prices are negotiable. 👍
+
+● You can check out website: https://www.solidmarketing.dev
+
 ---------------------------------------------------------------------------------------------------------------
 ❗️ It is forbidden to post links to some groups, so we developed the TELEGRAM FORWARDER BOT.
 
